@@ -1,2 +1,1 @@
-Ілля eh
-The "eh" is a dissapointed sigh.
+"eh" as in a dissapointed sigh.
